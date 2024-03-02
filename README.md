@@ -13,13 +13,17 @@ O αθλητής μας ξεκινάει αμέσως την πίστα SnowBoar
 #
 #
 
+https://github.com/StavroulaKoutsikou/Snow-Boarder/assets/72344015/4ac5605c-d2f5-4ae2-a73f-286244c988bd
+
+
 https://github.com/StavroulaKoutsikou/Snow-Boarder/assets/72344015/489c5d57-a5d7-425e-a6f4-a5a5db0790e5
 
 
 
 
 
-https://github.com/StavroulaKoutsikou/Snow-Boarder/assets/72344015/43c624d1-32da-4573-bd5f-993ea22a3c84
+
+
 
 
 
